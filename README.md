@@ -1,3 +1,6 @@
+Блок схема:
+https://miro.com/app/board/uXjVLfFjCao=/?share_link_id=3768561302
+
 Для тех кто только ждет детей:
 
 1. Пособие по беременности и родам
@@ -314,3 +317,9 @@
 пособие детям военнослужащих.
 
 Дополнительные выплаты семьям с детьми могут быть предусмотрены и на региональном уровне. 
+
+Источники:
+https://www.gosuslugi.ru/universal_benefits
+https://www.garant.ru/article/1677828/#5
+https://www.consultant.ru/law/ref/poleznye-sovety/detskie-posobija/edinovremennoe-posobie-pri-rozhdenii-rebenka/
+https://www.sravni.ru/text/vse-posobiya-na-detej-v-2024-godu/?upd=true
